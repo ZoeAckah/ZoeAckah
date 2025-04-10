@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ZoeAckah
 - 👀 I’m learning to code
-- 🌱 I’m currently still a living sentient being and trying to improve a little each day
+- 🌱 touch grass
 - 💞️ Music production, chess puzzles, my manual volkswagen golf
 - 📫 How to reach me @zoeackah hit me up
 - ⚡ Fun fact: I am a musician trying to get a better day job doing something nerdy. 
