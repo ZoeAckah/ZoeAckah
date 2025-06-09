@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ZoeAckah
-- 👀 I’m learning to code
-- 🌱 touch grass
+- 👀 I love to learn!
+- 🌱 Touch grass
 - 💞️ Music production, chess puzzles, my manual volkswagen golf
-- 📫 How to reach me @zoeackah hit me up
+- 📫 Hit me up. Easy to find as the only Zoe Ackah on the internet.
 - ⚡ Fun fact: I am a musician trying to get a better day job doing something nerdy. 
 <!---
 ZoeAckah/ZoeAckah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
